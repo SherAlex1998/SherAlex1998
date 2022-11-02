@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SherAlex1998
 - 👀 I’m interested in  science, computer games, application development, military topics, intellectual games.
-- 🌱 I’m currently learning MSU University Bachelor's degree program.
+- 🌱 I Graduated MSU University Bachelor's degree program. Now I work at Kairox apps.
 - 💞️ I’m looking to collaborate on study.
 - 📫 How to reach me: @SherAlex1998 in Telegram (+99890 927 09 29), SherAlex1998@yandex.ru, SherAlex1998@mail.ru. 
 
